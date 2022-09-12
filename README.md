@@ -1,1 +1,1 @@
-https://cabitxun.github.io/rsschool-cv/cv
+https://cabitxun.github.io/rsschool-cv/
