@@ -1,1 +1,1 @@
-# rsschool-cv
+https://cabitxun.github.io/rsschool-cv/cv
